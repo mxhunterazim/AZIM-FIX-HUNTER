@@ -1,7 +1,7 @@
 ## This Is A Protected Bot! If You Fork Without Permission Your Bot will Ban Automatically😗
 
 ## For Using This Bot You Need To Subscribe My YouTube Channel.Than Join My Whatsapp group And Send Me Prove I will Give You Access Code.
-## I'm [VEX_ADNAN] Also Know As 𝐋𝐨𝐠 𝐎𝐮𝐭                    Facebook Link 🔗        ([VEX_ADNAN](https://www.facebook.com/VEX.ADNAN.40)]🙎🏻‍♂️🖤
+## I'm [VEX_ADNAN] Also Know As 𝐋𝐨𝐠 𝐎𝐮𝐭                    Facebook Link 🔗        ([VEX_ADNAN](https://www.facebook.com/VEX.ADNAN.404)]🙎🏻‍♂️🖤
 
 # 📰 Talking about Information
 <img align="right" width=200px alt="PNG" src="https://i.imgur.com/4IcnUwQ.jpeg" />
@@ -11,7 +11,7 @@
 -   💬 MY NICKNAME IS AYAN🐰
 -   💬 ɪ ʜᴀᴠᴇ ᴀ 2ᴘᴇʀsᴏɴ ᴍʏ ᴍᴏᴍ ᴍʏ ᴅᴀᴅ
 -   💓 ʀᴇʟᴇᴛɪᴏɴsʜɪᴘ: sɪɴɢʟᴇ
--   🍁 ᴘʀᴏғɪʟᴇ: [ғᴀᴄᴇʙᴏᴏᴋ]([](https://www.faebook.com/VEX.ADNAN.404))
+-   🍁 ᴘʀᴏғɪʟᴇ: [ғᴀᴄᴇʙᴏᴏᴋ]([](https://www.facebook.com/VEX.ADNAN.404))
 -   🍀 ᴅᴇsᴄʀɪʙᴇ ᴀʙᴏᴜᴛ ɪᴍ ᴛᴏ ᴍᴜᴄʜ ʙᴜsʏ ᴍʏ ᴊᴏʙ
 <hr>
 
