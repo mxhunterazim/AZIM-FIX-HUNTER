@@ -11,7 +11,7 @@
 -   💬 MY NICKNAME IS AYAN🐰
 -   💬 ɪ ʜᴀᴠᴇ ᴀ 2ᴘᴇʀsᴏɴ ᴍʏ ᴍᴏᴍ ᴍʏ ᴅᴀᴅ
 -   💓 ʀᴇʟᴇᴛɪᴏɴsʜɪᴘ: sɪɴɢʟᴇ
--   🍁 ᴘʀᴏғɪʟᴇ: [ғᴀᴄᴇʙᴏᴏᴋ]([](https://www.facebook.com/VEX.ADNAN.404))
+-   🍁 ᴘʀᴏғɪʟᴇ: [ғᴀᴄᴇʙᴏᴏᴋ]([](https://www.faebook.com/VEX.ADNAN.404))
 -   🍀 ᴅᴇsᴄʀɪʙᴇ ᴀʙᴏᴜᴛ ɪᴍ ᴛᴏ ᴍᴜᴄʜ ʙᴜsʏ ᴍʏ ᴊᴏʙ
 <hr>
 
